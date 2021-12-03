@@ -1,5 +1,5 @@
 # Hawthorn-Motors-Project
-Digital Marketing Strategy Campaign for the Company Hawthorne Motors. 
+Digital Marketing Strategy Campaign for the company Hawthorne Motors Pre-Owned. 
 This includes designs for content to be posted on their digital platforms. (Instagram, Facebook, and Youtube)
 
 The following links will show the Digital Media Pages Created by my team for this project and Hawthorne Motors Pre-Owned used car company. 
